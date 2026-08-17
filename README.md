@@ -9,7 +9,7 @@ ${\color{#d5c7a4}TO}$ ${\color{#eae2e3}SEE}$ ${\color{#d5c7a4}WHAT}$ ${\color{#e
 ![views](https://komarev.com/ghpvc/?username=HOMELANDER&color=d5c7a4&label=hearts)
 
 ${\color{#d5c7a4}he}$ ${\color{#d5c7a4}hy}$ ${\color{#d5c7a4}it}$ ${\color{#d5c7a4}xeno/neoprn}$                                                                            
-${\color{#d5c7a4}bi}$ ${\color{#d5c7a4}abrosexual}$ ${\color{#d5c7a4}plusmicrolabels}$
+${\color{#d5c7a4}bi}$ ${\color{#d5c7a4}abrosexual}$ ${\color{#d5c7a4}microlabels}$
 homelander gachikoi/yume ns candysharing
 slavic CET timezone european
 dni proshippers n darkshippers who ship
