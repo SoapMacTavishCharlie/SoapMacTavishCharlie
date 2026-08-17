@@ -1,10 +1,10 @@
 </p>
 
-<p aling="center">$${\color{#2596be}TESTTESTESTT}$$
+<p aling="center">$${\color{#d5c7a4}TESTTESTESTT}$$
 
-![views](https://komarev.com/ghpvc/?username=ze&label=souls&2596be&plastic&abbreviated=true
+![views](https://komarev.com/ghpvc/?username=THATGREATDAY&color=d5c7a4&label=hearts)
 
-<img width="540" height="400" alt="HOMELANDER" src="https://github.com/user-attachments/assets/667b20f3-cb17-4afe-9d83-06bbccc6a2c9" />
+<img src="https://github.com/user-attachments/assets/667b20f3-cb17-4afe-9d83-06bbccc6a2c9" width="540px" height="400px">
 
 he hy it plus xeno & neo prns
 bi abroseuxual + microlabels
