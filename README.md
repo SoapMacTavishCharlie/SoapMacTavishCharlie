@@ -4,7 +4,7 @@
 
 ![views](https://komarev.com/ghpvc/?username=CHARLIEHOMELANDER&color=d5c7a4&label=hearts)
 
-<img src="https://github.com/user-attachments/assets/667b20f3-cb17-4afe-9d83-06bbccc6a2c9" width="440px" height="300px">
+<img src="https://github.com/user-attachments/assets/667b20f3-cb17-4afe-9d83-06bbccc6a2c9" width="540px" height="400px">
 
 he hy it plus xeno & neo prns
 bi abroseuxual + microlabels
