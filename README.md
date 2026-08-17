@@ -8,7 +8,7 @@ ${\color{#d5c7a4}TO}$ ${\color{#eae2e3}SEE}$ ${\color{#d5c7a4}WHAT}$ ${\color{#e
 
 ![views](https://komarev.com/ghpvc/?username=HOMELANDER&color=d5c7a4&label=hearts)
 
-${\color{#d5c7a4}he hy it plus xeno & neo prns}$
+${\color{#d5c7a4}hehyitxeno&neoprns}$
 bi abroseuxual + microlabels
 homelander gachikoi/yume ns candysharing
 slavic CET timezone european
