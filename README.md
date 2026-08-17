@@ -2,7 +2,7 @@
 
 </p>
 
-<img src="https://github.com/user-attachments/assets/667b20f3-cb17-4afe-9d83-06bbccc6a2c9" align="left" width="270px" height="200px">
+<img src="https://github.com/user-attachments/assets/667b20f3-cb17-4afe-9d83-06bbccc6a2c9" width="270px" height="200px">
 
 ${\color{#d5c7a4}TO}$ ${\color{#eae2e3}SEE}$ ${\color{#d5c7a4}WHAT}$ ${\color{#eae2e3}YOU}$ ${\color{#d5c7a4}ARE}$
 
