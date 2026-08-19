@@ -11,7 +11,7 @@ ${\color{#ffffff} ۫𓉸𓏽}$ 　　 ${\color{#ffffff}ₕᵒₘₑₗₐₙᵈ�
 
 ![views](https://komarev.com/ghpvc/?username=HOMELANDER&color=000000&label=hearts)
 
-<sub> [*r e* n t *r* y](https://rentry.co/sweetmeatsyringe) 　　 ${\color{#ffffff}𓎟 𓎡}$ 　　 <sub> [₊*新* b o o k](https://canniballove.atabook.org/) 　　  ${\color{#ffffff}𓏵 𓏵}$ 　　 <sub> [*s t r*a w *p a* g e](https://rentry.co/sweetmeatsyringe)
+<sub> [*r e* n t *r* y](https://rentry.co/sweetmeatsyringe) 　　 ${\color{#ffffff}𓎟 𓎡}$ 　　 <sub> [₊*新* b o o k](https://canniballove.atabook.org/) 　　  ${\color{#ffffff}𓏵 𓏵}$ 　　 <sub> [*s t r*a w *p a* g e](https://hypnodeath.straw.page/)
 
 
 
