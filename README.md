@@ -2,15 +2,23 @@
 
 </p>
 
-<img src="https://github.com/user-attachments/assets/667b20f3-cb17-4afe-9d83-06bbccc6a2c9" align="left" width="270px" height="200px">
+ 　　  <img src="https://github.com/user-attachments/assets/d70ae2c0-1706-4f79-92fa-50b68fb86a51" align="left" width="353.5px" height="160.5">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Henny+Penny&weight=500&size=13&letterSpacing=0.2rem&duration=900&pause=1000&color=FFFFFF&center=true&width=435&lines=doggy%2C+doggy%2C+doggy;cant+you+see;somehow+your+words+;just+hypnotize+me;and+I+just+love+your+jazzy+ways;doggy+dogg;youre+love+is+here+to+stay" alt="Typing SVG" /></a>
 
-${\color{#d5c7a4}TO}$ ${\color{#eae2e3}SEE}$ ${\color{#d5c7a4}WHAT}$ ${\color{#eae2e3}YOU}$ ${\color{#d5c7a4}ARE}$
+${\color{#ffffff}⠀𓈒}$ 　 ${\color{#ffffff}ᶜʰᵃʳˡⁱᵉ}$　　 ${\color{#ffffff}⑅}$ 　　 ${\color{#ffffff}ᵇⁱᵗᵗᵉʳˢʷᵉᵉᵗ}$ 　　 ${\color{#ffffff}ꕀ }$  
 
-${\color{#d5c7a4}⑅ ̫̫ ֺ͈  　　 charlie 　　 ᵒʳ 　　 bittersweet 　　 ₎ᣟ}$
+${\color{#ffffff} ۫𓉸𓏽}$ 　　 ${\color{#ffffff}ₕᵒₘₑₗₐₙᵈₑᵣ}$ 　　 ${\color{#ffffff}𓏴˙}$ 　　 ${\color{#ffffff}ⱼᵤᵈₑ}$ 　　 <sub>${\color{#ffffff}⬚ ₊}$
 
-[decor] 　　 ₕ ₒ ₘ ₑ ₗ ₐ ₙ ᵈ ₑ ᵣ 　　 𓈒 　　 ᵇ ᵢ ₜ ₜ ₑ ᵣ 　　 <sub>⬚ ₊
+![views](https://komarev.com/ghpvc/?username=HOMELANDER&color=000000&label=hearts)
 
-![views](https://komarev.com/ghpvc/?username=HOMELANDER&color=d5c7a4&label=hearts)
+<sub> [*r e* n t *r* y](https://rentry.co/sweetmeatsyringe) 　　 ${\color{#ffffff}𓎟 𓎡}$ 　　 <sub> [₊*新* b o o k](https://canniballove.atabook.org/) 　　  ${\color{#ffffff}𓏵 𓏵}$ 　　 <sub> [*s t r*a w *p a* g e](https://rentry.co/sweetmeatsyringe)
 
-<sub> [*re*nt*r*y](https://rentry.co/sweetmeatsyringe) 　　 [decor] 　　 <sub> [*新*book](https://canniballove.atabook.org/) 　　 [decor] 　　 <sub> [*str*aw*pa*ge](https://rentry.co/sweetmeatsyringe)
+
+
+ 　　  　　  　　  　　  　　  　 　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　  　　 　  　　  　　  　　  　　  　　  　　  　　  　　  　　 
+<img width="99" height="56" alt="tumblr_f9121664fbaca2e9c3789fdb1b8990b9_e3bc43ab_100" src="https://github.com/user-attachments/assets/a19b73ba-0263-41b1-a2f0-68bdbbddf51e" /> 　 　　 　　  <img width="99" height="56" alt="IMG_5841" src="https://github.com/user-attachments/assets/2352ab71-d5d1-4dea-9392-811d09b3e18e" /> 　　  　　 <img width="99" height="56" alt="tumblr_d113b959eccd7e5fbbc48666d342ae19_c5ba49bb_100" src="https://github.com/user-attachments/assets/04fb6009-8c5b-4642-82f5-a8db28ad85fe" />
+
+
+
+
 
