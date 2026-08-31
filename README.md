@@ -10,7 +10,7 @@
 
 </p>
 
-<div align="right">
+<div align="center">
 
 ⠀ 𓈒 　 ᶜ ʰ ᵃ ʳ ˡ ⁱ ᵉ 　　 ⑅ 　　 ᵇ ⁱ ᵗ ᵗ ᵉ ʳ ˢ ʷ ᵉ ᵉ ᵗ 　　 ꕀ
 
