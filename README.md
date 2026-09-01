@@ -2,7 +2,7 @@
 <div align="center">
 
 </p>
-<img width="430" height="430" src="https://github.com/user-attachments/assets/ed2f612d-f62f-434e-bbd6-eb9e608e583b" align="left"/>
+<img width="430" src="https://github.com/user-attachments/assets/ed2f612d-f62f-434e-bbd6-eb9e608e583b" align="left"/>
 
 <sub>remaking the grapic soon
 
