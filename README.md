@@ -1,7 +1,8 @@
+
 <div align="center">
 
 </p>
-<img width="430" height="430" alt="ezgif com-gif-maker(7)" src="https://github.com/user-attachments/assets/c247bab2-9008-49c2-921b-4ba7262447ee" align="left"/>
+<img width="430" height="430" src="https://github.com/user-attachments/assets/ed2f612d-f62f-434e-bbd6-eb9e608e583b" align="left"/>
 
 <sub>remaking the grapic soon
 
