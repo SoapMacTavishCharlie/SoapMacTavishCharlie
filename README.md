@@ -1,7 +1,7 @@
 <div align="center">
 
 </p>
-<img width="430px" height="500px" src="https://github.com/user-attachments/assets/4efa53fd-b48c-4010-86e3-e7326db1f958" align="left"/>
+<img width="430" height="430" alt="ezgif com-gif-maker(7)" src="https://github.com/user-attachments/assets/c247bab2-9008-49c2-921b-4ba7262447ee" align="left"/>
 
 <sub>remaking the grapic soon
 
@@ -29,3 +29,4 @@ guns.lol (wip
 
 <sub> cardd (wip)
 rid.lol (wip)
+
