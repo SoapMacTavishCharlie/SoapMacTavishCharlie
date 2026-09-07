@@ -2,9 +2,10 @@
 <div align="center">
 
 </p>
-<img width="430" src="https://github.com/user-attachments/assets/ed2f612d-f62f-434e-bbd6-eb9e608e583b" align="left"/>
+<img width="430" src="https://github.com/user-attachments/assets/71134188-2a35-43de-8d09-4e81e915e2b5" align="left"/>
 
-<sub>remaking the grapic soon
+
+<sub>remaking
 
      
 ![views](https://komarev.com/ghpvc/?username=HOMELANDER&color=a6a376&label=hearts)
