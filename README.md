@@ -15,7 +15,7 @@
 
 <p align="center">
  
-<sub>[prns.cc](https://pronouns.cc/@.hangintherekitty_) 　　 
+<sub>[prns.cc](https://pronouns.cc/@.homeland) 　　 
 [prns.page](https://en.pronouns.page/@charlieSOAPMACTA) 　　
 [url hoard](https://rentry.co/charliesurlhoard/) 　　 
 
