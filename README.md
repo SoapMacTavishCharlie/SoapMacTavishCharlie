@@ -7,9 +7,9 @@
 
 <div align="center">
 
-<sub>[re*nt*r*y](https://rentry.co/sweetmeatsyringe) 　　 
-[₊*新*book](https://canniballove.atabook.org/) 　　 
-[*str*aw*pa*ge](https://hypnodeath.straw.page/) 　　 
+<sub>[rentry](https://rentry.co/sweetmeatsyringe) 　　 
+[atabook](https://canniballove.atabook.org/) 　　 
+[strawpage](https://hypnodeath.straw.page/) 　　 
 
 <sub> rentry dni not up to date : ((
 
